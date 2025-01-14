@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @butterbeanburitothethird but you can call me zach
-- 👀 I’m interested in a townshiptale a cool vr game.
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on nothing :(
 - 📫 How to reach me @butterbeanburitothe3rd on discord
